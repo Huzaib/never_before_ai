@@ -1,1 +1,1 @@
-# never_before_ai
+**2024 NeverBeforeAI. All rights reserved.**
